@@ -1,1 +1,3 @@
-Salahhe2 rulz
+lista de echipe favorite
+
+Rusia
